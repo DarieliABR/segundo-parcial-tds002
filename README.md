@@ -6,6 +6,7 @@
 ## Integrantes
 
 - Joycel Otoniel Pérez Nieves — 2026-0703
+- Darieli Alexandra Báez Rosario - 2026-0700
 
 ## Ronda 3 — Programa en vivo
 
